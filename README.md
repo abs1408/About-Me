@@ -27,7 +27,7 @@ Background in Data Reporting and Operations.
 
 😄 Pronouns... He/Him
 
-⚡️ Fun fact... I am a Gemini so I'm born with curiosity. 
+⚡️ Fun fact... I am a Leo so I'm born with curiosity and always passionate about work. 
 
 Feel free to take a look around and let me know what you think! If you have any questions or comments, don't hesitate to reach out."
 
